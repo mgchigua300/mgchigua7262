@@ -17,7 +17,7 @@
 
 点击访问：<a href="https://hj-251.pages.dev/">黑料网</a>
 
-点击访问：<a href="https://hj-258.pages.dev/">海角社区</a>
+点击访问：<a href="https://hj-258.pages.dev/">今日有料</a>
 
 点击访问：<a href="https://hj-260.pages.dev/">精彩影视</a>
 
@@ -31,7 +31,7 @@
 
 点击访问：<a href="https://jinrichigua01.pages.dev/">今日吃瓜</a>
 
-点击访问：<a href="https://91chiguazhongxin.pages.dev/">91吃瓜</a>
+点击访问：<a href="https://91chiguazhongxin.pages.dev/">91视频</a>
 
 点击访问：<a href="https://xiazaianzhuang.pages.dev/">51app</a>
 
